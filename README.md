@@ -25,7 +25,10 @@
 对男人而言，打哈欠和阴 茎勃起都是由一种氮氧化物所掌控的，这种氮氧化物在大脑中扩散开后，既可能到达控制呼吸的神经处，也可能下行至阴茎输送能量的血管，有时这两种功能可以同时发挥作用。
 
 
-原来打哈欠还有那么多好处，以后要好好打哈欠了！下面的几个视频可以让人快速进入打哈欠的状态
+原来打哈欠还有那么多好处，以后要好好打哈欠了！这里有一个研究打哈欠的频道：https://www.youtube.com/channel/UCijQv4nh16TNcv8PbLA_tqQ
+
+下面的几个视频可以让人快速进入打哈欠的状态
+
 [![Watch the video](https://i9.ytimg.com/vi/NzUo7w99-9k/mq1.jpg?sqp=CPCr2YsG&rs=AOn4CLBjG39Z4Ya49mg00WONsvJ7A7ImcA)](https://youtu.be/NzUo7w99-9k)
 [![Watch the video](https://i9.ytimg.com/vi/UfNRgVOC-qY/mq1.jpg?sqp=CPCr2YsG&rs=AOn4CLAfayxKo1iabuWwZF00x4Y_iLhqjg)](https://youtu.be/UfNRgVOC-qY)
 [![Watch the video](https://i9.ytimg.com/vi/WN55J9ahkwc/mq1.jpg?sqp=CPCr2YsG&rs=AOn4CLBb1DiolrdN2oHw328rLnA2x-EXZQ)](https://youtu.be/WN55J9ahkwc)
